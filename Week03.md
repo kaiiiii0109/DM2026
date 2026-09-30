@@ -38,3 +38,4 @@
 
 ## 10.學習成果驗證與時間戳記
 
+<img width="873" height="248" alt="image" src="https://github.com/user-attachments/assets/e0833d65-d593-4b40-9757-fbb272064372" />
